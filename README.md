@@ -1,1 +1,0 @@
-![](AppPic.jpg)
